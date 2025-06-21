@@ -1,1 +1,1 @@
-![giphy](https://github.com/user-attachments/assets/7523fba5-ac9f-4ae9-b89e-462874cea591)
+![Screenshot 2025-06-20 171425](https://github.com/user-attachments/assets/fa2f3491-1c88-40b7-ab66-a780fc40adf4)
