@@ -1,2 +1,3 @@
-<img width="3500" height="1969" alt="Untitled design (1) (2)" src="https://github.com/user-attachments/assets/6ffa571b-8f65-476f-9111-d6671f179340" />
+<img width="3000" height="2517" alt="Untitled design (1) (2) (1)" src="https://github.com/user-attachments/assets/aea3fa4b-9b3f-43f2-bd9d-9518d60b015b" />
+
 i hate canva i cant download the gif
