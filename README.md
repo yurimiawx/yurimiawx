@@ -1,5 +1,2 @@
+<img width="1920" height="1080" alt="Untitled design (1)" src="https://github.com/user-attachments/assets/ee352314-3ca4-49cf-a1bb-fb74abf45e47" />
 
-
-https://github.com/user-attachments/assets/837f9124-498c-4abf-9028-2a5084e5b216
-
-can't make it into a gif heh
